@@ -1,1 +1,1 @@
-# 2-year-training-
+day 1
